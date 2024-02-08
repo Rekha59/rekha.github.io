@@ -1,2 +1,2 @@
 # rekha.github.io
-# fuck you 
+hi, i am rekha timalsina. Nice to meet you. 
